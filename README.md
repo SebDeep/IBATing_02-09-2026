@@ -9,3 +9,5 @@ Hans mor overlevede heldigvis ikke. Desværre gjorde resten af hans familie. Hel
 Dette digt er mit vigtigste minde om Karsten... Efter Ulykken.
 
 Men heldigvis er min hund stadig ludomand
+
+og de levede lykkeligt til deres dages ende... som er i morgen ved daggry.
