@@ -11,3 +11,5 @@ Dette digt er mit vigtigste minde om Karsten... Efter Ulykken.
 Men heldigvis er min hund stadig ludomand
 
 og de levede lykkeligt til deres dages ende... som er i morgen ved daggry.
+
+MEEEEN daggry kom ikke. Jeg nåede at ofre Benny min hund til de onde guder og de skabte evig nat.
