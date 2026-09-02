@@ -7,3 +7,5 @@ Hans mor overlevede heldigvis ikke. Desværre gjorde resten af hans familie. Hel
 
 "Roser er røde violer er blå en ting er sikkert jeg elsker hans tå"
 Dette digt er mit vigtigste minde om Karsten... Efter Ulykken.
+
+Men heldigvis er min hund stadig ludomand
